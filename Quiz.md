@@ -1,6 +1,7 @@
 Câu 1:  (B)
 
 Câu 2: (C)
+Cau 3: C
 
 Câu 4.  dap an A,D
 
